@@ -1,5 +1,4 @@
- Hi, I’m @celaacl !!
-🙆🏻‍♀️ I’m currently learning android XIXI
+ Hi, I’m @celaacl !! 🙆🏻‍♀️ I’m currently learning android 
 
 stay healty <3 XOXO
 

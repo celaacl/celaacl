@@ -1,7 +1,7 @@
  Hi, I’m @celaacl !!
-🙆🏻‍♀️ I’m currently learning android development 
+🙆🏻‍♀️ I’m currently learning android XIXI
 
-stay healty <3
+stay healty <3 XOXO
 
 
 <!---

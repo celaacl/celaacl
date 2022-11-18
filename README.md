@@ -1,4 +1,4 @@
- Hi, I’m @celaacl !! 🙆🏻‍♀️ I’m currently learning android 
+ Hi, u can call me cece !! 🙆🏻‍♀️ I’m currently learning android 
 
 stay healty <3 XOXO
 

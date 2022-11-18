@@ -1,7 +1,8 @@
  Hi, I’m @celaacl !!
 🙆🏻‍♀️ I’m currently learning android development 
 
-reach me at instagram @celacll 
+stay healty <3
+
 
 <!---
 celaacl/celaacl is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

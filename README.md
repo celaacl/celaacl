@@ -1,6 +1,6 @@
- Hi, u can call me cece !! 🙆🏻‍♀️ I’m currently learning android 
+ Hi, this is claryn !! 
 
-stay healty <3 XOXO
+nice to see ya <3 XOXO
 
 
 <!---
